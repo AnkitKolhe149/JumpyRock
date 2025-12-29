@@ -6,6 +6,6 @@ Ankit Kolhe : All-Rounder, Want Someone to Carry, that's the Guy. Want Someone t
 
 Amit Saw: People may under-estimate my Talent but they never under-estimate my Hardwork.
 
-Himanshu Joshi: When it's time to Clutch, the Final Boss Awakens, once once he's on a roll , the only number he rolls is a 20.
+Himanshu Joshi: When it's time to Clutch, the Final Boss Awakens, once he's on a roll , the only number he rolls is a 20.
 
-Aditya Modi: Direct and Forefront. The MoodMaker. The Glue that holds the team together. Undaunted and Methodical.
+Aditya Modi: Direct and Forefront. The MoodMaker. Undaunted and Methodical. The Glue that holds the team together.
